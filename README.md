@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @EigenVector22, IIT Bombay student 
+- 👋 Hi, I’m Ashutosh Rajora, 2nd year IIT Bombay student 
